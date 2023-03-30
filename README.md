@@ -6,6 +6,8 @@ Trabalho Ettore Currículo
 
 ### Contato
 
+[Instagram]([Instagram](https://www.instagram.com/higor_miguel_/)) | [Facebook](https://www.facebook.com/higor.miguel.3)
+
 (14) 991030415  |  higormiguel2015@outlook.com
 
 # Formação Acadêmica
